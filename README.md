@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning nothing lol
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me email-kontakt.jonasgrimm@gmail.com
+- 📫 How to reach me kontakt.jonasgrimm@gmail.com
